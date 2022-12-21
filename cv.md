@@ -15,5 +15,6 @@ Russian (native),
 Polish (above average)
 English (not lower than intermediate)
 
+![1](https://user-images.githubusercontent.com/110065477/209011558-fc89b13b-0fff-4c8e-ad2b-ca866e62ef45.jpg)
 
 
