@@ -16,4 +16,7 @@ Polish (above average)
 English (not lower than intermediate)
 
 
+![de450075-f68e-41db-9694-45e462928932](https://user-images.githubusercontent.com/110065477/209008866-5b0a2102-1007-4fbc-8ebe-4dcd0c9eed53.jpg)
+
+
 
